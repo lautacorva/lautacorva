@@ -7,7 +7,7 @@ I am currently seeking my first professional opportunity, eagerly embracing oppo
 I am a very friendly individual, so please don't hesitate to reach out if you'd like to!
 
 ## 👯 Communities
-- Estudiante graduado de #SoyHenry 😃 https://www.soyhenry.com/
+- Graduate student at #SoyHenry 😃 https://www.soyhenry.com/
 
 ## ⚡ Technologies
 Talk to me about
